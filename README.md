@@ -12,3 +12,12 @@ Meu nome é Cerejinha07 🍒
 
 ![](https://media.tenor.com/pt-BR/view/cat-kiss-gif-21168766)
 
+
+
+
+
+
+
+
+
+![](https://tenor.com/pt-BR/view/kitty-cherry-catch-play-gif-5610511)
